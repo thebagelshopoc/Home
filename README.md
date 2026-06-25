@@ -13,3 +13,4 @@ Fresh, locally-made bagels in Orange County, CA
 
 ## Contact
 Email: [thebagelshopoc@gmail.com](mailto:thebagelshopoc@gmail.com)
+Instagram: [@thebagelshopoc](https://www.instagram.com/thebagelshopoc?igsh=MW1hOWJic2g2YzA5dQ%3D%3D&utm_source=qr)
